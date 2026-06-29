@@ -1,4 +1,4 @@
-
+Trust.Zone secure Extension: auto-connect & streaming-optimization offers the most advanced Trust.Zone extension, with auto-connect and streaming-optimization. Ideal for users who
 
 
 
